@@ -1,0 +1,312 @@
+<h1> AI Builders Digest 今日热点快报</h1
+p><strong>2026年07月16日 00时59分53秒(UTC+8)</strong></p
+hr
+h2>一、国内时政</h2
+h3>方便轮椅乘客、老年群体顺畅出行，打造全友好出行环境。。</h3
+p>严禁随意涨租、违规解约，稳定住房租赁市场秩序，保障租客权益。。<br><br> | 来源：<code>http://3g.njybsm.cn/news/9676.shtml
+</code></p
+br><h3>我国首条高温超导磁悬浮试验线完成满速试运行 时速623公里</h3
+p>宜昌三峡大坝旅游区升级智慧游览系统。<br><br> | 来源：<code>http://3g.njybsm.cn/news/4873.shtml
+</code></p
+br><h3>适配多款主流智能车型，推动自动驾驶感知能力大幅升级。</h3
+p>郑州航空港新能源汽车基地第100万辆整车下线<br><br> | 来源：<code>http://3g.njybsm.cn/news/4447.shtml
+</code></p
+br><h3>全国多地启动义务教育优质均衡验收 薄弱校全部达标</h3
+p>宜宾五粮液第20万吨基酒产能正式投产<br><br> | 来源：<code>http://3g.njybsm.cn/news/8248.shtml
+</code></p
+br><h3>推动精准医疗全面普及，助力重大疾病早筛早诊，惠及广大患者。</h3
+p>严查隐形变异违规培训行为，切实减轻学生暑期过重学业负担，保障休息权益。<br><br> | 来源：<code>http://3g.njybsm.cn/news/4760.shtml
+</code></p
+br><h3>中心承载抖音、今日头条西部用户数据，算力规模超3EFLOPS，响应速度提升30%。</h3
+p>矿山开采回收率提升至95%，矸石全部回填，生态环境破坏减少80%，实现绿色发展。<br><br> | 来源：<code>http://3g.njybsm.cn/news/5019.shtml
+</code></p
+br><h3>助力中国品牌出海，跨境电商进出口规模持续保持高速增长。。</h3
+p>合肥蔚来汽车第50万辆换电车型正式下线。<br><br> | 来源：<code>http://3g.njybsm.cn/news/3286.shtml
+</code></p
+br><h3>志愿填报指导服务全面启动，助力考生合理选择心仪院校与专业。。</h3
+p>场馆占地3万平米，设置50个VR互动项目，开业首月接待体验者超15万人次。<br><br> | 来源：<code>http://3g.njybsm.cn/news/3001.shtml
+</code></p
+br><h3>全国多地启动“城市黑臭水体治理” 九成以上水体达标。</h3
+p>客车出口至全球60个国家，全球市场占有率超50%，成为中国新能源客车名片。<br><br> | 来源：<code>http://3g.njybsm.cn/news/9519.shtml
+</code></p
+br><h3>工厂年产枸杞汁、枸杞多糖等产品2万吨，产品出口至30个国家，产值突破50亿元。</h3
+p>上半年全国文旅消费总额突破3万亿元 同比增长22%<br><br> | 来源：<code>http://3g.njybsm.cn/news/1963.shtml
+</code></p
+br><h3>带动乡村旅游发展，促进农民增收致富。</h3
+p>农村居民购买指定车型可享最高8000元补贴，同步推进乡村充电桩建设，覆盖全部行政村。<br><br> | 来源：<code>http://3g.htiang.com/news/5279.shtml
+</code></p
+br><h3>河湖水生态系统逐步恢复，市民亲水休闲空间不断增加，改善水环境。</h3
+p>集群年产高端葡萄酒2000万瓶，配套葡萄酒文化旅游线路，年接待游客超30万人次。<br><br> | 来源：<code>http://3g.htiang.com/news/4886.shtml
+</code></p
+br><h3>可安装20兆瓦超大容量风机，支撑海上风电基地大规模建设。</h3
+p>绵阳中国科技城发布新一代北斗导航芯片<br><br> | 来源：<code>http://3g.htiang.com/news/6311.shtml
+</code></p
+br><h3>园区全流程数字化管控，基酒品质稳定性提升98%，酱酒年产量突破5万千升。。</h3
+p>多项空间生命科学试验有序开展，为后续深空探索积累宝贵经验与核心数据。<br><br> | 来源：<code>http://3g.htiang.com/news/3813.shtml
+</code></p
+br><h3>北京首个跨区轨道交通线路开通 连接昌平与副中心核心区。</h3
+p>兰州兰州石化年产千万吨炼油基地全面升级<br><br> | 来源：<code>http://3g.htiang.com/news/9510.shtml
+</code></p
+br><h3>我国成功发射太阳探测卫星 实现全日面连续高精度观测。</h3
+p>标志着中国邮轮产业实现从零到一的重大突破。<br><br> | 来源：<code>http://3g.htiang.com/news/1347.shtml
+</code></p
+br><h3>汕头汕头港开通RCEP成员国直航新航线。</h3
+p>北京地铁19号线二期新站点正式开通运营<br><br> | 来源：<code>http://3g.htiang.com/news/9299.shtml
+</code></p
+br><h3>北京2026年马拉松赛事报名人数突破15万 创历史新高。</h3
+p>引入AI辅助教学系统，为每个学生定制个性化学习成长方案，提升教学质量。<br><br> | 来源：<code>http://3g.htiang.com/news/9958.shtml
+</code></p
+br><h3>实现常见病就近诊疗，减少往返大医院奔波，缓解大医院就诊压力。。</h3
+p>严格严控违规择校行为，保障教育公平惠及所有适龄学生，促进教育均衡发展。。<br><br> | 来源：<code>http://3g.htiang.com/news/1651.shtml
+</code></p
+br><h3>天津港开通京津冀跨境电商海空联运新通道。</h3
+p>展厅展示智能采油新技术，让游客了解石油工业发展历史，年接待研学游客超30万人次。。<br><br> | 来源：<code>http://3g.htiang.com/news/5585.shtml
+</code></p
+br><h3>中心承载抖音、今日头条西部用户数据，算力规模超3EFLOPS，响应速度提升30%。。</h3
+p>让群众在家门口就能享受到高端影像诊断服务。。<br><br> | 来源：<code>http://3g.futurenine.cn/news/9045.shtml
+</code></p
+br><h3>方便轮椅乘客、老年群体顺畅出行，打造全友好出行环境。。</h3
+p>推广节水器具，建设节水型社会。。<br><br> | 来源：<code>http://3g.futurenine.cn/news/1869.shtml
+</code></p
+br><h3>覆盖全球所有区域，赋能自动驾驶、精准农业等高精度场景应用。。</h3
+p>银川宁夏电力集团建成全国首个大规模新能源基地。<br><br> | 来源：<code>http://3g.futurenine.cn/news/5804.shtml
+</code></p
+br><h3>基地年产高端化工产品100万吨，供应华南市场，总投资超百亿美元，成为全球最大基地。</h3
+p>上半年全国软件业务收入突破6万亿元 同比增长12%。<br><br> | 来源：<code>http://3g.futurenine.cn/news/5664.shtml
+</code></p
+br><h3>每日通勤可节省数元，有效鼓励市民选择公共交通绿色出行。</h3
+p>我国自主研发的首台国产高端数控机床量产 精度达微米级<br><br> | 来源：<code>http://3g.futurenine.cn/news/8202.shtml
+</code></p
+br><h3>基地年产页岩气50亿立方米，供应陕西市场，成为全国页岩气开发示范标杆项目。。</h3
+p>兰州兰州石化年产千万吨炼油基地全面升级<br><br> | 来源：<code>http://3g.futurenine.cn/news/7926.shtml
+</code></p
+br><h3>免费为考生提供专业指导，助力科学填报志愿。。</h3
+p>常州天合光能第50GW高效光伏电池产能投产。<br><br> | 来源：<code>http://3g.futurenine.cn/news/5760.shtml
+</code></p
+br><h3>我国首个深海油气田全面投产 年产油气当量超千万吨。</h3
+p>国产首款自研大排量摩托车量产上市 动力性能对标国际<br><br>| 来源：<code>http://3g.futurenine.cn/news/8740.shtml
+</code></p
+br
+h2>二、民生社会</h2
+h3>餐食定价普遍在15元以内，针对失能、独居老人提供免费上门配送服务，解决老年群体吃饭难题。。</h3
+p>打造家门口的休闲空间，进一步提升居民幸福感与获得感，改善人居环境。。<br><br> | 来源：<code>http://3g.futurenine.cn/news/8183.shtml
+</code></p
+br><h3>包机直达欧洲，宁夏葡萄酒出口时效压缩至7天，今年海外销量同比增长60%。</h3
+p>嘉峪关长城文化旅游景区推出长城沉浸式实景演出。<br><br> | 来源：<code>http://3g.futurenine.cn/news/7251.shtml
+</code></p
+br><h3>全面改善薄弱校办学条件，缩小区域城乡校际办学差距，促进教育公平。</h3
+p>新增60万平米产业空间，吸引23个金砖国家合作项目落地，总投资超200亿元。<br><br> | 来源：<code>http://3g.altumai.cn/news/3193.shtml
+</code></p
+br><h3>我国自主研发的首台大直径硬岩盾构机出口俄罗斯 适配冻土</h3
+p>我国自主研发的首台大马力拖拉机量产 适配黑土地作业<br><br> | 来源：<code>http://3g.altumai.cn/news/7068.shtml
+</code></p
+br><h3>北京启动“中轴线申遗”环境整治 周边景观全面提升</h3
+p>嘉峪关酒钢集团推出新一代不锈钢新材料<br><br> | 来源：<code>http://3g.altumai.cn/news/9689.shtml
+</code></p
+br><h3>九江长江港口开通江海联运直达上海新航线</h3
+p>100小时以上储能项目落地，支撑新能源稳定供电。<br><br> | 来源：<code>http://3g.altumai.cn/news/3275.shtml
+</code></p
+br><h3>北京启动“中轴线申遗”环境整治 周边景观全面提升。</h3
+p>获取海量观测数据，助力空间天气预警能力大幅提升，保障航天安全。。<br><br> | 来源：<code>http://3g.altumai.cn/news/5384.shtml
+</code></p
+br><h3>100小时以上储能项目落地，支撑新能源稳定供电。。</h3
+p>北京首个“老年友好型社区”建成 配套无障碍设施全覆盖<br><br> | 来源：<code>http://3g.altumai.cn/news/0652.shtml
+</code></p
+br><h3>农村网点覆盖率达到100%，农产品上行流通渠道持续畅通，助力农民增收。。</h3
+p>全国换电站数量突破3000座，换电时间仅需3分钟，大幅提升新能源汽车使用体验。<br><br> | 来源：<code>http://3g.altumai.cn/news/1836.shtml
+</code></p
+br><h3>我国自主研发的首台重离子治癌装置投入临床 疗效显著。</h3
+p>北京首个“垃圾分类示范片区”建成 居民参与率超98%<br><br> | 来源：<code>http://3g.altumai.cn/news/2700.shtml
+</code></p
+br><h3>全国多地启动“保障性租赁住房”建设 新增百万套房源。</h3
+p>全部194个洞窟实现高精度数字存档，推出线上云游石窟，让全球游客在线观赏。<br><br> | 来源：<code>http://3g.altumai.cn/news/4592.shtml
+</code></p
+br><h3>国产首款自研AR眼镜量产上市 重量不足80克体验升级。</h3
+p>入库面料样本超1000万种，设计师可在线一键下单打样，新品开发周期缩短70%。<br><br> | 来源：<code>http://3g.altumai.cn/news/4464.shtml
+</code></p
+br><h3>自贡东方锅炉首台国产超临界二氧化碳锅炉交付。</h3
+p>全国多地启动“秸秆综合利用”工程 利用率超95%<br><br> | 来源：<code>http://3g.syg30.cn/news/2426.shtml
+</code></p
+br><h3>泉州晋江鞋服产业带建成国内首个柔性制造云平台。</h3
+p>我国自主研发的首台全磁悬浮人工心脏获批临床应用<br><br> | 来源：<code>http://3g.syg30.cn/news/0378.shtml
+</code></p
+br><h3>丽江古城完成智慧消防系统全覆盖。</h3
+p>风电光伏合计破万亿千瓦时，绿色转型加速推进，能源结构持续优化。。<br><br> | 来源：<code>http://3g.syg30.cn/news/6579.shtml
+</code></p
+br><h3>北京启动“老字号振兴”计划 推出百款创新产品焕新升级。</h3
+p>芯片产业链协同发力，有效缓解国内市场供需缺口，保障产业安全。。<br><br> | 来源：<code>http://3g.syg30.cn/news/0832.shtml
+</code></p
+br><h3>实测传输速率达1Tbps，相当于每秒下载10部高清电影，技术指标达到国际领先水平。。</h3
+p>可搭载乘客超5000人，下半年将正式开启商业航线，填补国产大型邮轮空白。。<br><br> | 来源：<code>http://3g.syg30.cn/news/9277.shtml
+</code></p
+br><h3>数字文化产业表现亮眼，文化消费活力持续释放，产业结构优化。。</h3
+p>全程运行仅需1小时，大幅缓解北部、东部城区长期存在的通勤压力，优化城市空间布局。。<br><br> | 来源：<code>http://3g.syg30.cn/news/0259.shtml
+</code></p
+br><h3>充电速度大幅提升，新能源车使用体验实现质的飞跃，消除里程焦虑。。</h3
+p>我国自研量子计算机“九章四号”算力实现新突破。<br><br> | 来源：<code>http://3g.syg30.cn/news/9986.shtml
+</code></p
+br><h3>农村网点覆盖率达到100%，农产品上行流通渠道持续畅通，助力农民增收。</h3
+p>兰州兰州石化年产千万吨炼油基地全面升级。<br><br> | 来源：<code>http://3g.syg30.cn/news/6316.shtml
+</code></p
+br><h3>北京启动“夜跑路线”规划 打造10条安全照明健身步道</h3
+p>改造保留传统民居风貌，新增特色民宿与手作店铺，今年入选世界文化遗产预备名单。<br><br> | 来源：<code>http://3g.syg30.cn/news/8745.shtml
+</code></p
+br><h3>北京2026年高考成绩公布 本科录取控制分数线划定。</h3
+p>新增3座便民换乘站，早高峰运力提升12%，周边数十万居民通勤时间平均缩短15分钟。<br><br> | 来源：<code>http://3g.syg30.cn/news/3597.shtml
+</code></p
+br><h3>推进再生水规模化利用，有效缓解城市水资源短缺，建设节水型城市。。</h3
+p>北京首个“智慧养老”平台上线 实时监测老人健康状态。<br><br> | 来源：<code>http://3g.nissispace.cn/news/7078.shtml
+</code></p
+br><h3>年发电量可满足30万户家庭日常用电需求，大幅降低区域碳排放总量，助力双碳目标推进。。</h3
+p>多国达成农业深度合作共识，共同应对全球粮食安全挑战，保障供给。<br><br>| 来源：<code>http://3g.nissispace.cn/news/8239.shtml
+</code></code></p
+br
+h2>三、科技生活</h2
+h3>有效降低金融机构资金成本，加大对实体经济重点领域与薄弱环节的精准支持力度。。</h3
+p>北京首个“夜间演艺集聚区”落地 演出场次同比翻倍。<br><br> | 来源：<code>http://3g.nissispace.cn/news/2421.shtml
+</code></p
+br><h3>上半年全国软件业务收入突破6万亿元 同比增长12%</h3
+p>海口海南航空开通第100条国际直飞航线。<br><br> | 来源：<code>http://3g.nissispace.cn/news/0328.shtml
+</code></p
+br><h3>再生水回用城市绿化，节约优质水资源。</h3
+p>南充成渝地区双城经济圈冷链物流中心正式投用<br><br> | 来源：<code>http://3g.nissispace.cn/news/1623.shtml
+</code></p
+br><h3>航线从湛江直达西非，全程18天，华南钢铁企业铁矿石运输成本降低15%。</h3
+p>起重机最大起重量达500吨，应用于超高层建筑施工，技术指标全球领先，出口海外。<br><br> | 来源：<code>http://3g.nissispace.cn/news/7241.shtml
+</code></p
+br><h3>工厂年产枸杞汁、枸杞多糖等产品2万吨，产品出口至30个国家，产值突破50亿元。</h3
+p>2026年世界物流大会在郑州举办 聚焦智慧物流新发展<br><br> | 来源：<code>http://3g.nissispace.cn/news/8597.shtml
+</code></p
+br><h3>国内首个商业航天发射场完成首次火箭发射任务</h3
+p>材料应用于国产大飞机，强度提升20%，重量降低15%，打破海外垄断，实现自主可控。<br><br> | 来源：<code>http://3g.nissispace.cn/news/4960.shtml
+</code></p
+br><h3>全面保障劳动者工伤合法权益，有效分散各类用工风险。。</h3
+p>大厦为海外华侨提供免租办公空间，今年已有89个侨资项目落地，总投资超百亿元。。<br><br> | 来源：<code>http://3g.nissispace.cn/news/1663.shtml
+</code></p
+br><h3>无人机续航达45分钟，支持厘米级定位，广泛应用于测绘、巡检等领域，全球市场占有率第一。。</h3
+p>打造冰雪文化融合特色路线，带动区域协同发展，促进文旅增收。<br><br> | 来源：<code>http://3g.nissispace.cn/news/1765.shtml
+</code></p
+br><h3>德阳东方电气首台国产重型燃气轮机正式交付。</h3
+p>航线新增全息灯光水幕秀，串联洪崖洞与江北嘴夜景，每晚接待游客上限提升至1500人。<br><br> | 来源：<code>http://3g.cchaoli.cn/news/8315.shtml
+</code></p
+br><h3>大理云南大理乳业集团推出新一代有机牛奶产品。</h3
+p>西宁青海盐湖集团年产100万吨钾肥项目全面投产<br><br> | 来源：<code>http://3g.cchaoli.cn/news/3225.shtml
+</code></p
+br><h3>全国多地启动“中小学教室照明改造” 全部达到国家护眼标准。</h3
+p>乌鲁木齐国际大巴扎升级丝路文化旅游街区<br><br> | 来源：<code>http://3g.cchaoli.cn/news/2267.shtml
+</code></p
+br><h3>氢能重卡批量投入运营，氢能商业化落地进程持续加速。。</h3
+p>基酒品质保持稳定，市场供应能力大幅提升，更好满足全国消费者需求，销量稳步增长。<br><br> | 来源：<code>http://3g.cchaoli.cn/news/2045.shtml
+</code></p
+br><h3>水泥碳排放降低30%，强度提升20%，应用于全国重大工程，市场占有率稳居第一。。</h3
+p>三亚崖州湾南繁种业实验室新科研楼启用<br><br> | 来源：<code>http://3g.cchaoli.cn/news/8789.shtml
+</code></p
+br><h3>国产首款自研大型民用直升机完成高原验证试飞。</h3
+p>航线新增全息灯光水幕秀，串联洪崖洞与江北嘴夜景，每晚接待游客上限提升至1500人。<br><br> | 来源：<code>http://3g.cchaoli.cn/news/6533.shtml
+</code></p
+br><h3>我国自主研发的首台全自主可控超级计算机投入使用 算力领先。</h3
+p>成本降低40%，大幅提升国产工业机器人性价比。。<br><br> | 来源：<code>http://3g.cchaoli.cn/news/6506.shtml
+</code></p
+br><h3>国产首款自研AR工业眼镜量产 用于工厂远程运维指导。</h3
+p>风电光伏合计破万亿千瓦时，绿色转型加速推进，能源结构持续优化。。<br><br> | 来源：<code>http://3g.cchaoli.cn/news/7576.shtml
+</code></p
+br><h3>北海银滩景区升级滨海智慧绿道全线开放。</h3
+p>园区全流程数字化管控，基酒品质稳定性提升98%，酱酒年产量突破5万千升。。<br><br> | 来源：<code>http://3g.cchaoli.cn/news/7939.shtml
+</code></p
+br><h3>天津滨海新区国产大推力火箭基地第100枚火箭总装完成。</h3
+p>园区全流程数字化管控，基酒品质稳定性提升98%，酱酒年产量突破5万千升。。<br><br> | 来源：<code>http://3g.cchaoli.cn/news/6700.shtml
+</code></p
+br><h3>数据中心承载西南地区企业云服务，PUE值降至1.1，成为全国绿色数据中心示范项目。。</h3
+p>航道长28公里，配套12个运动码头，赛艇、皮划艇等项目向公众低价开放。。<br><br> | 来源：<code>http://3g.sckjsz.cn/news/4260.shtml
+</code></p
+br><h3>龙舟赛事、民俗体验等活动广受好评，有效带动周边餐饮、住宿等相关消费增长。</h3
+p>展厅展示智能采油新技术，让游客了解石油工业发展历史，年接待研学游客超30万人次。。<br><br> | 来源：<code>http://3g.sckjsz.cn/news/3786.shtml
+</code></p
+br><h3>长时储能项目集中落地，支撑新能源高比例接入电网，保障电力稳定。</h3
+p>平台最大钻井深度达1万米，可在深海开采油气，提升我国海洋油气开发能力。<br><br> | 来源：<code>http://3g.sckjsz.cn/news/2089.shtml
+</code></p
+br><h3>基地采用AI温控与水肥一体化技术，水仙花产量提升40%，春节前上市时间提前15天。。</h3
+p>喀什新疆喀什经济开发区开通跨境电商新通道<br><br> | 来源：<code>http://3g.sckjsz.cn/news/6186.shtml
+</code></p
+br><h3>我国自主研发的首台大型燃气轮机实现满负荷运行 效率领先。</h3
+p>北京启动“博物馆之城”建设 注册博物馆数量超200家。<br><br> | 来源：<code>http://3g.sckjsz.cn/news/9844.shtml
+</code></p
+br><h3>宜宾五粮液第20万吨基酒产能正式投产。</h3
+p>北京启动“口袋公园”提质升级 增设智能健身与文化设施<br><br>| 来源：<code>http://3g.sckjsz.cn/news/5744.shtml
+</code></code></p
+br
+h2>四、国际热点</h2
+h3>管网排水能力提升一倍，全面保障城市汛期运行安全，减少内涝灾害损失。。</h3
+p>牧场存栏奶牛10万头，全流程自动化挤奶，原奶品质达到欧盟标准，供应全国市场。。<br><br> | 来源：<code>http://3g.sckjsz.cn/news/8889.shtml
+</code></p
+br><h3>后续将适配C919机型，实现核心部件全国产化，突破航空工业瓶颈。</h3
+p>变废为宝生产清洁能源，减少秸秆焚烧污染，持续改善区域空气质量。。<br><br> | 来源：<code>http://3g.sckjsz.cn/news/0300.shtml
+</code></p
+br><h3>班列直达中亚与欧洲36个城市，今年开行量同比增长25%，外贸货值超千亿元。</h3
+p>探明海底多金属结核储量，为后续商业化开发奠定坚实技术基础，保障矿产资源安全。<br><br> | 来源：<code>http://3g.sckjsz.cn/news/3317.shtml
+</code></p
+br><h3>北京首个“老年友好型社区”建成 配套无障碍设施全覆盖</h3
+p>国产首款自研大排量摩托车量产上市 动力性能对标国际<br><br> | 来源：<code>http://3g.sckjsz.cn/news/3647.shtml
+</code></p
+br><h3>全国多地发布中小学招生政策 落实就近入学均衡配置资源</h3
+p>哈尔滨冰雪大世界夏季主题园区正式开园<br><br> | 来源：<code>http://3g.dehuajinshu.cn/news/7461.shtml
+</code></p
+br><h3>地铁串联黄河南北两岸，通勤时间从1小时压缩至15分钟，加速北岸新城开发。</h3
+p>步道串联生态湿地与景观花海，配套增设休闲座椅与直饮水点，成为市民夏日健身新去处。<br><br> | 来源：<code>http://3g.dehuajinshu.cn/news/0239.shtml
+</code></p
+br><h3>泉州晋江鞋服产业带建成国内首个柔性制造云平台。</h3
+p>遵义茅台镇酱酒产业带建成智能酿造示范园区。<br><br> | 来源：<code>http://3g.dehuajinshu.cn/news/8621.shtml
+</code></p
+br><h3>支持多终端智能互联，开启消费级元宇宙应用新阶段，引领智能硬件创新。。</h3
+p>呼和浩特乳业产业园推出全球最大智能奶牛牧场<br><br> | 来源：<code>http://3g.dehuajinshu.cn/news/2244.shtml
+</code></p
+br><h3>上半年全国光伏新增装机量同比增长45% 分布式占比超七成。</h3
+p>国产首款自研无人机完成高原试飞 适应海拔5000米环境<br><br> | 来源：<code>http://3g.dehuajinshu.cn/news/0765.shtml
+</code></p
+br><h3>鞍山钢铁集团推出新一代高强度汽车用钢。</h3
+p>全面提升劳动者就业技能水平，有效缓解结构性就业矛盾，稳就业促增收。<br><br> | 来源：<code>http://3g.dehuajinshu.cn/news/3755.shtml
+</code></p
+br><h3>检查费用大幅降低，显著提升基层医疗机构影像诊断水平，惠及群众。。</h3
+p>重庆长安汽车第200万辆自主品牌新能源汽车下线<br><br> | 来源：<code>http://3g.dehuajinshu.cn/news/3038.shtml
+</code></p
+br><h3>贵阳贵州茅台第10万吨基酒产能正式投产。</h3
+p>海外客商可在线看样下单，物流全程追踪，今年跨境电商交易额同比增长45%。<br><br> | 来源：<code>http://3g.dehuajinshu.cn/news/1970.shtml
+</code></p
+br><h3>北京启动历史文化街区保护更新项目 20条胡同完成改造。</h3
+p>改造保留传统民居风貌，新增特色民宿与手作店铺，今年入选世界文化遗产预备名单。<br><br> | 来源：<code>http://3g.dehuajinshu.cn/news/2650.shtml
+</code></p
+br><h3>东营黄河三角洲生态旅游区正式对外开放。</h3
+p>教育部发布新规 中小学课后服务全面覆盖特色兴趣课程<br><br> | 来源：<code>http://3g.dehuajinshu.cn/news/4539.shtml
+</code></p
+br><h3>全国多地启动“四好农村路”提档升级 硬化通户路超万公里。</h3
+p>项目年产磷酸铁锂材料30万吨，供应国内主流车企，带动当地2万群众就业增收。。<br><br> | 来源：<code>http://3g.rlfhg.cn/news/7610.shtml
+</code></p
+br><h3>上半年全国规模以上工业增加值同比增长5.2% 恢复态势向好。</h3
+p>洛阳中国一拖推出新一代大马力智能拖拉机。<br><br> | 来源：<code>http://3g.rlfhg.cn/news/2144.shtml
+</code></p
+br><h3>蓝天数量不断增加，城市空气质量改善显著，人居环境质量提升。。</h3
+p>全国多地发布“高温津贴”发放标准 每人每月超300元。<br><br> | 来源：<code>http://3g.rlfhg.cn/news/5527.shtml
+</code></p
+br><h3>北海银滩景区升级滨海智慧绿道全线开放。</h3
+p>严禁随意涨租、违规解约，稳定住房租赁市场秩序，保障租客权益。。<br><br> | 来源：<code>http://3g.rlfhg.cn/news/0724.shtml
+</code></p
+br><h3>北京启动“公交场站综合利用”改造 配套建设便民菜市场。</h3
+p>北京启动“绿色建筑”推广计划 新建建筑全部执行三星标准。<br><br> | 来源：<code>http://3g.rlfhg.cn/news/6842.shtml
+</code></p
+br><h3>平遥古城完成智慧安防系统全覆盖</h3
+p>廊道串联12个城市公园，设置骑行与步行道，成为太原市民日常休闲健身的核心场所。。<br><br> | 来源：<code>http://3g.rlfhg.cn/news/1546.shtml
+</code></p
+br><h3>北京启动“博物馆之城”建设 注册博物馆数量超200家</h3
+p>获取海量观测数据，助力空间天气预警能力大幅提升，保障航天安全。<br><br> | 来源：<code>http://3g.rlfhg.cn/news/6725.shtml
+</code></p
+br><h3>沿海大型风电基地建设加快，绿色能源供给能力持续增强，能源结构优化。。</h3
+p>我国自主研发的首台大型盾构机出口东南亚 助力当地基建<br><br> | 来源：<code>http://3g.rlfhg.cn/news/0419.shtml
+</code></p
+br><h3>北京首个“社区卫生服务中心”升级 配备CT等大型设备。</h3
+p>北京中轴线申遗配套文化展在景山公园开幕。<br><br> | 来源：<code>http://3g.rlfhg.cn/news/8194.shtml
+</code></p
+br><h3>市场交易活跃度大幅提升，有效盘活汽车存量消费市场，带动汽车产业循环发展。。</h3
+p>武汉长江新区建成国内最大智能网联汽车测试场<br><br>| 来源：<code>http://3g.rlfhg.cn/news/4394.shtml
+</code></code></p
+br
+h2>
